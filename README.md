@@ -1,2 +1,2 @@
 Roblox > Minecraft
-Free Palestine 🇵🇸
+<p>Free Palestine 🇵🇸</p>
