@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @Azizzo
-
 Roblox > Minecraft
+Free Palestine 🇵🇸
